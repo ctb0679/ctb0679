@@ -1,5 +1,7 @@
 Welcome to Junaidali Surti's Profile! 🤖🚀
+
 About Me
+
 Greetings! I'm Junaidali Surti, a passionate Mechatronics Master's student at Hamburg University of Technology, blending mechanical engineering prowess with cutting-edge technology. With a Bachelor's in Mechanical Engineering under my belt, I'm driven by innovation and problem-solving.
 
 Experience & Expertise
